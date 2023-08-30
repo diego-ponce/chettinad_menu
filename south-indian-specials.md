@@ -1,0 +1,16 @@
+#### Thatte Idly (1) 
+#### Podi Idly (3) 
+#### Idly Sambar(3) 
+#### Rasam Idly (3) 
+#### Mini Podi Idly(10) 
+#### Vada (2) 
+#### Sambar Vada (2) 
+#### Rasam Vada (2) 
+#### Dahi Vada (2) 
+#### Upma 
+#### Mysore Bonda (6) 
+#### Chole Batoora (2) 
+#### Poori Masala (2) 
+#### Channa Poori (2) 
+#### Kuzhi Paniyaram (10) 
+##### [Designed By [Techieglide](https://web.archive.org/web/20220926135807/https://www.techieglide.com/)]
